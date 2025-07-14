@@ -7,4 +7,4 @@ Hi there 👋
 
 ## Let's Connect!
 
-Feel free to reach out via email: g.aalbers@amsterdaumc.nl or connect on LinkedIn https://www.linkedin.com/in/george-aalbers-829b74372/
+Feel free to reach out via email: g.aalbers@amsterdamumc.nl or connect on LinkedIn https://www.linkedin.com/in/george-aalbers-829b74372/
